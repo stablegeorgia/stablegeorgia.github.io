@@ -1,1 +1,1 @@
-# stablegeorgiallc.github.io
+# stablegeorgia.github.io
